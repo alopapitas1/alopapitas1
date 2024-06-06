@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @alopapitas1
 - 👀 I’m interested in work
-- 🌱 I’m currently learning student
+- 🌱 I’m currently learning (student)
 - 💞️ I’m looking to collaborate on proyects
 - 📫 How to reach me @sinlimitesxd1290@gmail.com
 - 😄 Pronouns: he
